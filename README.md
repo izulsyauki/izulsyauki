@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @izulsyauki
 - 👀 I’m interested in definitely coding, and design, and tech
-- 🌱 I’m currently learning Full-stack web developer
+- 🌱 I’m currently learning Full-stack web development
 - 💞️ I’m looking to collaborate on my project
 - 📫 How to reach me text me on mya instagram: @izulsyauki
 - 😄 Pronouns: you also can call me izul
